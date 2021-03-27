@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @pOGGERS-sys
+- 👀 I’m interested in Auto starting a website and automatically clicking on it
+- 🌱 I’m currently learning everything, its my first time
+- 💞️ I’m looking to collaborate on things that will interest me (I am new I have no Idea what this is)
+- 📫 How to reach me by mail (Milun36@gmx.at)
